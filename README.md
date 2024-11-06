@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @hei-jack
-- Some code in my head,do you want to see it?
+- we'll find the way, we're always.
